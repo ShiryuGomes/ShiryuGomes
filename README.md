@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do ShiryuGomes 😁
+## Bem-vindo(a) ao perfil do Paulo Gomes 😁
 
  <div>
    <a href="https://github.com/ShiryuGomes">
